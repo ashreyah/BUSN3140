@@ -1,6 +1,3 @@
-Here’s a structured summary for **Chapter 3: Perceiving and Making Meaning** focused on Objective 3-1 and the concept of sensory appeal in consumer behavior, formatted for notes or GitHub:
-
----
 
 # Chapter 3: Perceiving and Making Meaning
 
