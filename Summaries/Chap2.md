@@ -1,6 +1,3 @@
-Thanks for sharing these pages from Chapter 2! Here’s a clear and focused summary of the **first section**, including the **PESTLE framework**, and key concepts on **business ethics** and **consumer activism** for your quiz prep:
-
----
 
 # Chapter 2: Consumer Ethics, the Marketplace, and the Planet
 
